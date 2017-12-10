@@ -1,3 +1,3 @@
 # hello-world
 hello world repository
- Thats me 
+ I am a Phd student. I have a daughter 2 yr old. Love my family.
